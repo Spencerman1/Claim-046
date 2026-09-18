@@ -84,3 +84,5 @@ Let it be known that this is the **first and exclusive sovereign declaration ove
 **– Spencer Southern**
 
 Notice: Eliam Sovereign Infrastructure™ is a governance arm and operational framework wholly owned and controlled by Southern Star Pro Studios LLC.
+
+Eliam Sovereign Infrastructure™ is a governance and operational arm wholly owned, controlled, and administered by Southern Star Pro Studios LLC. All Eliam functions, declarations, and sovereign claims operate under SSPS authority and do not constitute a separate legal entity.
