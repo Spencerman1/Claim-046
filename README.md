@@ -82,3 +82,5 @@ This claim:
 Let it be known that this is the **first and exclusive sovereign declaration over all non-linear, undetectable, or symbolic transportation technologies**, and all forms of topological mobility now fall under the governance, behavioral licensing, and credential audit of the Mint-to Logic™ infrastructure.
 
 **– Spencer Southern**
+
+Notice: Eliam Sovereign Infrastructure™ is a governance arm and operational framework wholly owned and controlled by Southern Star Pro Studios LLC.
